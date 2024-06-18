@@ -1,1 +1,1 @@
-# alea
+# alea-furniture
